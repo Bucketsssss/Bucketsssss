@@ -1,0 +1,5 @@
+-  Hi, I’m @Bucket on youTube
+-  I Make mod menus for gorilla tag {I dont rat}
+-  I’m learning Visual Studio
+-  I’m looking to collaborate on youtube
+-  How to reach me Dm me on discord @bucket
